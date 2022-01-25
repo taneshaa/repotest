@@ -10,8 +10,5 @@ Growth mindset is one's ability to do self reflection when going through somethi
 - I'm still learning through the process
 * Take it one step at a time.
 
-1. Numbered
-2. List
-
 
 [GitHub Profile](https://github.com/taneshaa) and my pup Raven ![My pup Raven! :)](https://i.ibb.co/tYK2x28/C171-CD26-15-AE-4-CB6-96-F9-21382-ADF6-A12-1-201-a.jpg)
